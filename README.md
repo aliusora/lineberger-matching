@@ -88,4 +88,4 @@ Contact
 ------------------------------------
 
 Internal use only.
-Contact the Lineberger data team if you have questions.
+Contact the Ali Sora with the Recruitment + Retention team at NC TraCS if you have questions.
